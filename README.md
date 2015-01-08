@@ -3,6 +3,6 @@ For an extended and a more detailed version of the resume, please visit www.jayb
 
 As always, please feel free to reach out with questions...
 
-Have Fun, Live Life!
+Live Life, Have Fun!
 
 Jay
